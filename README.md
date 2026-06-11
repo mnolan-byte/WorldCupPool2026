@@ -1,0 +1,1 @@
+# WorldCupPool2026
